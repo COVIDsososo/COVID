@@ -1,1 +1,1 @@
-# COVID
+# COVID is something dangerous 
